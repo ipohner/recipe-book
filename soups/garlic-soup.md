@@ -29,3 +29,5 @@
 5. Season the soup with salt and pepper.
 
 6. Before serving, add grated cheese to the soup bowl, then add the soup and garnish with bread and parsley.
+
+7. Enjoy!
