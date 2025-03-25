@@ -7,14 +7,13 @@
 - 1 chili
 - 1 lime
 - 1 tsp salt
-- 1/2 onion
-- 1 Tbsp cilantro
+- 4 cloves of garlic
 
 
 ## Instructions
 
 - chop avocados
-- chop onion
+- chop garlic
 - chop chili
 - squeeze lime
 - add salt
