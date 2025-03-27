@@ -3,7 +3,7 @@
 
 ## Ingredients
 
-- **12** garlic cloves
+- **4.5** garlic cloves
 - **2** carrots
 - **150 g** celery root
 - **3 tbsp** butter
