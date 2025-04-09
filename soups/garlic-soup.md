@@ -14,6 +14,7 @@
 - **4 slices** of bread, for garnish
 - **150 g** Gouda cheese, grated, for garnish
 - **Fresh chopped parsley**, for garnish 
+- **Surströmming**, for the smell
 
 
 ## Instructions
@@ -30,4 +31,6 @@
 
 6. Before serving, add grated cheese to the soup bowl, then add the soup and garnish with bread and parsley.
 
-7. Enjoy!
+7. Add surströmming
+
+8. Enjoy!
